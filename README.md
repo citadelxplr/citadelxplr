@@ -1,16 +1,42 @@
-𝐇𝗂𝗂𝗂 ω𝖾ᥣ𝖼ⱺꭑ𝖾 𝗍ⱺ ꭑ𝗒 ρ𝗋ⱺ𝖿𝗂ᥣ𝖾𝖾!!
+Hi hi yello !! 😼
 ________________________
 
-𝐏ᥣ𝖾α𝗌𝖾 ᑯⱺ𐓣'𝗍 𝖼ⱺρ𝗒 ꭑ𝗒 𝗌𝗄𝗂𐓣𝗌, α𝗌 𝚰 ωⱺ𝗋𝗄𝖾ᑯ 𝗏𝖾𝗋𝗒 ɦα𝗋ᑯ 𝗍ⱺ ꭑα𝗄𝖾 𝗍ɦ𝖾ꭑ!! :,)
+ABOUT PONIES ::
+🐾: Please don't copy my skins ❌, i would appreciate it !!
+🎪: I have alot of pony making styles and they constantly change TwT
+🧁: Most of my skins are cosplays :p
 ________________________
 
-𝚰'ꭑ Johnny!! ,,, 𝐌𝗒 ρ𝗋ⱺ𐓣ⱺυ𐓣𝗌 α𝗋𝖾 he/him,,, 𝚰'ꭑ 𝐏ⱺᥣ𝗂𝗌ɦ//𝐄𐓣𝗀ᥣ𝗂𝗌ɦ!! ,,, 𝐌ⱺ𝗌𝗍 ⱺ𝖿 ꭑ𝗒 𝗌𝗄𝗂𐓣𝗌 α𝗋𝖾 𝖼ⱺ𝗌ρᥣα𝗒𝗌/𝗍𝗋ⱺᥣᥣ 𝗌𝗄𝗂𐓣𝗌 ᑲυ𝗍 𝚰'ꭑ 𝗌υρ𝖾𝗋 𝖿𝗋𝗂𝖾𐓣ᑯᥣ𝗒 α𐓣ᑯ 𝖼ɦ𝗂ᥣᥣ -ω- ,,, 𝚰 ᥣ𝗂𝗄𝖾 ᑯ𝗋αω𝗂𐓣𝗀 α𐓣ᑯ ω𝗋𝗂𝗍𝗂𐓣𝗀!! 
+🌸: I go by Johnny/Rick/Bug
+my pronouns are he/him
+💬: I speak ::
+🍡: Polish (native)
+🍧: English (fluently ??)
 ________________________
 
-𝐌𝗒 𝖿α𐓣ᑯⱺꭑ𝗌: , 𝐂αᥣᥣ ⱺ𝖿 ᑯυ𝗍𝗒 (𝐂ⱺ𝐃) , 𝐎𝖼𝗍ⱺ𐓣αυ𝗍𝗌 , 𝐃α𐓣ᑯ𝗒'𝗌 ωⱺ𝗋ᥣᑯ , 𝐃ᑯᥣ𝖼 (𝐃ⱺ𝗄𝗂 ᑯⱺ𝗄𝗂 ᥣ𝗂𝗍𝖾𝗋α𝗍υ𝗋𝖾 𝖼ᥣυᑲ) , 𝐀𝗋𝖼α𐓣𝖾 , 𝐄ᑯᑯ𝗌ωⱺ𝗋ᥣᑯ , 𝐀ᑯⱺρ𝗍 ꭑ𝖾, Rick and Morty !!
+FANDOMS ::
+🔫: Call of Duty (CoD) - I only have access to the mobile game but I watched a ton of gameplays of the other games and know alot of lore ^_^
+🐙: Octonauts - I heard they have a fandom but I'm not sure, it's my favorite show on TV
+🌈: Dandy's World - I know drama happened but I did come back, I do play but I do NOT support Qw*l nor what she did
+🎱: Arcane - I haven't watched in a while and probably forgot alot of the lore but will rewatch soon in my free time :p
+🥓: Eddsworld - I love Eddsworld so much and the dedication Edd but into animating the series, I hope he found peace in heaven 👼🕊️
+👾: Rick and Morty - My biggest fiction right now, I lovelovelove Rick and Morty, I used to watch it a little back in 2019 and I'm really angry I didn't continue then
+🐉: How to train your dragon (Httyd) - I used to be obsessed with it now it's neutral, I love the rtte series the most ^_^
 ________________________
 
-𝐘αⱺ𝗂 𝖿ⱺ𝗋 ᥣ𝗂𝖿𝖾 🤤 ,,, 𝚰 ᥣυ𝗏ᥣυ𝗏ᥣυ𝗏 ρᥣα𝗒𝗂𐓣𝗀 αᑯⱺρ𝗍 ꭑ𝖾 :ρρ ,,, 𝐀𐓣ᑯ 𝚰 ᥣυ𝗏 ꭑ𝗒 ᑲ𝖿𝖿 𝐙α𐓣ᑯ𝗋ⱺ,,, 𝐀𝗍 𝖿𝗂𝗋𝗌𝗍 𝚰 ᑯⱺ𐓣'𝗍 𝗋ᥣᥣ𝗒 𝗍αᥣ𝗄 𝗍ⱺ ρ𝖾ⱺρᥣ𝖾 𝖼αυ𝗌𝖾 𝚰'ꭑ α𐓣𝗑𝗂ⱺυ𝗌 α𐓣ᑯ 𐓣ⱺ𝗍 𝗋ᥣᥣ𝗒 𝖼ⱺꭑ𝖿𝗒, ᑲυ𝗍 𝚰 ω𝗂ᥣᥣ ωα𝗋ꭑ υρ!! ,,, 𝚰 ᥣⱺ𝗏𝖾ᥣⱺ𝗏𝖾ᥣⱺ𝗏𝖾 𝖼+ɦ ρᥣ𝗌 𝖼υᑯᑯᥣ𝖾 ω ꭑ𝖾 :333
+Games I like ::
+ROBLOX :: 
+Adopt Me! - my favorite game atm 🐾
+Dandy's World - as said before I do not support Qw*l, I just enjoy the game 🌈
+BOKUBOKU :: 
+BokuBoku is a simple pixelated game, kind of a minecraft ripoff but it's cool, I play alot with my brother ⛏️
+POCKET MORTYS ::
+Pocket Mortys was discontinued from the play store back in about 2012 if I'm not wrong, the game is about catching Mortys like pokemons and making them fight against other Mortys 👾
 ________________________
 
-- 𝐓𝗒𝗌ꭑ 𝖿ⱺ𝗋 𝗋𝖾αᑯ𝗂𐓣𝗀 𝖼υ𝗍𝗂𝖾!! 𝐇α𝗏𝖾 α 𐓣𝗂𝖼𝖾 ᑯα𝗒/𐓣𝗂𝗀ɦ𝗍/𝖾𝗏𝖾𐓣𝗂𐓣𝗀 α𐓣ᑯ 𝗋𝖾ꭑ𝖾ꭑᑲ𝖾𝗋 υ ꭑα𝗍𝗍𝖾𝗋!
+I usually spend my time on ponytown hanging out with my best friend Monika, sometimes with my other best friend Zandro if they're online 💗
+If I'm alone feel free to cuddle with me or just sit around, I'm mostly afk so I won't mind nor talk much !
+
+________________________
+
+👋 :: Tysm for wasting your time to read my boring profile, have a good day/night/evening or afternoon and remember that you matter 💝💝
